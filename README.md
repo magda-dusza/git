@@ -1,2 +1,3 @@
 # gitkamila
-kjasfdjkoefahoidesgjbihfdsrgjihrsgbhuesgrdbjkrsgbhjesfdbikj
+git majo nez
+asd
