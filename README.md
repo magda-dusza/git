@@ -1,3 +1,3 @@
-# gi
+# gitkamila
 git majo nez
 asd
